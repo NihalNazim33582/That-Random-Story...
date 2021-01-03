@@ -1,0 +1,1 @@
+On a monday in a forgotten era their was a teenager named Arron. He was 13 and did what every normall teenager did. He liked sports, playing with his friends and most importanly he hated school.
